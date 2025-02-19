@@ -1,0 +1,1 @@
+hallo nama gua aldi
